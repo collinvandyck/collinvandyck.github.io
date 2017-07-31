@@ -15,7 +15,7 @@ So, I've decided to take a break from Twitter for the month of August.
 
 I'm not really sure what I'm going to do with all of this free time.  I'll probably start writing (here) more. I also want to read some books, spend time with my wife, and start working through my PS4 game backlog (which is vast and shameful).
 
-Speaking of this blog, I set up an IFTTT trigger to post new blog posts to my Twitter feed since I won't be on the site. That's not cheating is it?
+Speaking of this blog, I set up an IFTTT trigger to post new blog posts to my Twitter feed since I won't be on the site. That's not cheating is it?  It probably won't work anyways.
 
 Can't wait to see what to be upset about in September. Yall take care!
 
